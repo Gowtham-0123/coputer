@@ -1,0 +1,2 @@
+# coputer
+the  vkdtogoipi
